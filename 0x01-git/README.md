@@ -1,2 +1,2 @@
 My Directory
-Congartulations 
+Congratulations 
